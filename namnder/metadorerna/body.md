@@ -14,22 +14,23 @@ Det är vi som håller i måndagsstäden i Meta under året. Vi bjuder in nyanta
 
 ### Städ
 
-* 28/9 Aladdin + Bamse
-* 5/10 Cruella de Vil + Dolan
-* 12/10 En Pokémon + Fyrkant, Svampbob
-* 2/11 Grodan Boll + Hocapontas
-* 9/11 ICA-Stig + Johnny Bravo
-* 16/11 Kim Possible + Lilla My
-* 23/11 Mojo Jojo + Extra
+* 3/10: Alv & Big foot
+* 10/10: Cthulu & Drake
+* 7/11: Enhörning &  Fågel Fenix
+* 14/11: Gubben i månen & Häst
+* 21/11: Ingvar Olsberg & Jultomten
+* 28/11: Kraken & Loch Ness odjuret
+* 5/12: Mannen, myten, legenden + Extra
+* 19/12: extra
 
 Vill du få information och/eller påminnelser, fyll då i följande <stängt>
 
 Frågor? Maila stadskrik@d.kth.se
 
-### Städskrin 2015/2016:
+### Städskrin 2016/2017:
 
-Alexander Viklund
-Lisa Lund
+Caroline Borg (Datasektionen)
+Emma Olsson (Sektionen för Medieteknik)
 
 ## Interna Poster
 
